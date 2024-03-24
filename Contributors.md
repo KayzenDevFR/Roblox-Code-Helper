@@ -1,0 +1,8 @@
+# Our contributors
+
+- 📑 Codelow : https://discord.gg/codelow
+
+- 💻 Roblox France : https://discord.gg/robloxfrance
+
+
+### If you want to be a part of this projet add "itskayzen_yt" on Discord!
